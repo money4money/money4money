@@ -5,4 +5,3 @@
 - 📫 How to reach me through FB @magicwind888 
 
 
-Looking for part time job online.
